@@ -50,8 +50,7 @@
 
 ## 📫 Connect With Me
 
-🌐 GitHub:
-💼 LinkedIn: Add your LinkedIn link  
+🌐 GitHub:https://github.com/nishant20sidam
 
 ---
 
